@@ -2,16 +2,16 @@
 Swedish
 --
 Twitter och Blocket - 
-Gjord av Vista
+Gjord av IzzTeyy
 
 Kontakta oss i våran discord ifall du får några problem!
-Discord: https://discord.gg/DpCFCnYBrA
+Discord: Kommer snart
 
 
 English
 --
 Twitter and Blocket - 
-Made by Vista
+Made by IzzTeyy
 
 Contact us in our discord if you get any problems!
-Discord: https://discord.gg/DpCFCnYBrA
+Discord: Coming Soon
